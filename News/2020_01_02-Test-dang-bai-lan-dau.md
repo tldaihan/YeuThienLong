@@ -33,7 +33,7 @@ Giới Thiệu Server Đại Hán 2:
 ☑️Hướng đi gần giống với server Đại Hán 1 (bảng drop sẽ update liên tục)
 xem chi tiết tại: http://thienlong-daihan.com/tinhnang/toan-tap
 
-☑ Server sẽ bảo trì mỗi ngày vào 6h tối mỗi lần 5 phút.
+☑️ Server sẽ bảo trì mỗi ngày vào 6h tối mỗi lần 5 phút.
 
 Ngoài ra vẫn sẽ có 1 số trường hợp cần bảo trì đột xuất và sẽ có thông báo trước ít nhất 1 tiếng
 
