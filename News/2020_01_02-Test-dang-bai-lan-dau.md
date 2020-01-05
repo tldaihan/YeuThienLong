@@ -1,5 +1,5 @@
 title:TLBB Đại Hán khai mở server Đại Hán 2 
-image:https://imgur.com/fqpxp2J
+image:https://i.imgur.com/fqpxp2J.jpg
 date:05.01.2020
 
 TLBB Đại Hán thân mời các Anh hùng yêu thích Thiên Long Bát Bộ nói chung và đặc biệt yêu thích TLBB thời đầu
