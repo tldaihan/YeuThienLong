@@ -76,9 +76,9 @@ Ngoài ra vẫn sẽ có 1 số trường hợp cần bảo trì đột xuất v
 
 ☑️Top 2: 1 Thể 6 + 1k vàng + 200k ĐT
 
-☑️Top 3: 3 Thể 5 + 1k vàng + 200k ĐT
+☑️Top 3: 3 Thể 5 + 1k vàng + 100k ĐT
 
-Top 4 - Top 10: 3 thể lực 5 + 200k ĐT
+Top 4 - Top 10: 50k ĐT
 
 ➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
 
