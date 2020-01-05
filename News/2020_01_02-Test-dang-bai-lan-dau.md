@@ -1,22 +1,22 @@
-title:Team Kỷ Niệm TLBB thân mời các Anh hùng yêu thích Thiên Long Bát Bộ nói chung và đặc biệt yêu thích TLBB thời đầu 
+title:TLBB Đại Hán khai mở server Đại Hán 2 
 image:https://i.imgur.com/NqnmOrM.jpg 
-date:19.04.2019
+date:05.01.2020
 
-Team Kỷ Niệm TLBB thân mời các Anh hùng yêu thích Thiên Long Bát Bộ nói chung và đặc biệt yêu thích TLBB thời đầu
+TLBB Đại Hán thân mời các Anh hùng yêu thích Thiên Long Bát Bộ nói chung và đặc biệt yêu thích TLBB thời đầu
 
-Tham gia Server Mới có tên Kỷ Niệm S2.
+Tham gia Server Mới có tên Đại Hán 2.
 
 ⏰Thời gian khai mở : 1️⃣9️⃣🇭 ngày 2️⃣5️⃣.0️⃣4️⃣.2️⃣0️⃣1️⃣9️⃣
 
-🔰Trang chủ: http://tl.kyniemtlbb.com
+🔰Trang chủ: http://thienlong-daihan.com
 
-🔰Đăng Ký: http://id.kyniemtlbb.com/register
+🔰Đăng Ký: http://id.thienlong-daihan.com/register
 
-🔰Fangpage: https://www.facebook.com/kyniemtlbb
+🔰Fangpage: https://www.facebook.com/thienlongdaihan
 
-🔰Groups: https://www.facebook.com/groups/kyniemtlbb
+🔰Groups: https://www.facebook.com/groups/405235456707396
 
-🔰Tải Game: http://tl.kyniemtlbb.com/Download
+🔰Tải Game: http://thienlong-daihan.com/Download
 
 ➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
 
