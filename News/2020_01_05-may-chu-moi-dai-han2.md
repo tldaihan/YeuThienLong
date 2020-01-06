@@ -6,7 +6,7 @@ Kính chào quý bằng hữu!
 
 Thiên Long Đại Hán là phiên bản miễn phí dành riêng cho cộng đồng đam mê Thiên Long Bát Bộ đội ngũ BQT đều là những game thủ chân chính từ thời FPT phát triển. Sẽ chính thức ra mắt server Đại Hán 2 đón Tết với những event cực chất.
 
- ⏰Test: 13h00p ngày 07/01/2020
+ ⏰Test: 13h00p ngày 08/01/2020
  ⏰Open: 13h00p ngày 11/01/2020
 
 🔰Trang chủ: http://thienlong-daihan.com
