@@ -110,7 +110,7 @@ TOP 2 : Trùng Lâu Quy hoặc Triệu + Danh Hiệu
 TOP 3 : Thời trang hoặc Kỵ thuộc tính 60 ngày + Danh Hiệu
 TOP 4-10 : Thời trang hoặc Kỵ thuộc tính 30 ngày.
 
-📌 Lưu ý : TOP 1-2-3 thuộc server 2 chỉ được chọn 1 trong 2 giải thưởng
+📌 Lưu ý : TOP 1-2-3 thuộc server 2 chỉ được chọn 1 trong 2 giải thưởng (Trùng Lâu)
 ➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
 
 🎁Xây Tử Cấm Thành:
