@@ -59,11 +59,11 @@ Khi xây được Tử cấm thành lập tức inbox Fanpage để được ch�
 
 ⏰Thời gian: 11/01 đến 24h ngày 15/01/2020
 
-💎 Top 1: Trùng Lâu Triệu/Quy + Băng Phách Thần Châm + 1 áo Thời trang có thuộc tính (30 ngày) + pét 6k tư chất + Danh Hiệu
+💎 Top 1: Trùng Lâu Triệu/Quy + Băng Phách Thần Châm + 1 áo Thời trang hoặc Kỵ có thuộc tính (30 ngày) + pét 6k tư chất + Danh Hiệu
 
-💎 Top 2: Băng Phách Thần Châm + 1 áo Thời trang có thuộc tính ( 30 ngày ) + pet 4k tư chất + Danh Hiệu
+💎 Top 2: Băng Phách Thần Châm + 1 áo Thời trang hoặc Kỵ có thuộc tính ( 30 ngày ) + pet 4k tư chất + Danh Hiệu
 
-💎 Top 3: Băng phách Thần châm + 1 áo Thuộc tính (30 ngày ) + Danh Hiệu
+💎 Top 3: Băng phách Thần châm + 1 áo Thuộc tính hoặc Kỵ có thuộc tính (30 ngày ) + Danh Hiệu
 
 ➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
 
