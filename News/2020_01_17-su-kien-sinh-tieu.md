@@ -15,7 +15,7 @@ Tết 2020 đã tới gần, BQT Thiên Long Đại Hán sẽ mở event Sinh Ti
 
 Thiên - Long - Bát - Bộ - Đại - Hán
 
-image:https://i.imgur.com/tSBGBjV.png
+![](https://i.imgur.com/tSBGBjV.png)
 
 ➖ Đổi vé Sinh Tiêu hoặc Vé quay tại Đại Lý Củng Thái Vân (170,122)
 
