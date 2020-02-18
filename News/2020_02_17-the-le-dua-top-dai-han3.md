@@ -1,14 +1,14 @@
-title:🔔🔔THỂ LỆ ĐUA TOP ĐẠI HÁN 2 🔔🔔
+title:🔔🔔THỂ LỆ ĐUA TOP ĐẠI HÁN 3 🔔🔔
 image:https://tinhkiem.net/wp-content/uploads/2019/02/dua-top.jpg
-date:05.01.2020
+date:17.02.2020
 
 Kính chào quý bằng hữu!
 
-🔔 THỜI GIAN ĐUA TOP LEVEL SERVER ĐẠI HÁN 2 NHƯ SAU :
+🔔 THỜI GIAN ĐUA TOP LEVEL SERVER ĐẠI HÁN 3 NHƯ SAU :
 
-Bắt đầu khởi tranh khi Server 2 chính thức OPEN lúc 13:00 ngày 11/01/2020
+Bắt đầu khởi tranh khi Server 3 chính thức OPEN lúc 13:00 ngày 29/02/2020
 
-Kết thúc khi có 1 nhân vật đầu tiên trong game đạt level 99.
+Kết thúc khi có 1 nhân vật đầu tiên trong game đạt level 99 hoặc đến 19h tối.
 
 Gợi ý nhỏ: để đảm bảo được quyền lợi của chính mình thì các bạn nên chụp màn hình bảng xếp hạng ngay khi nhân vật của mình lên level 99 hoặc trong team của mình có người lên level 99 nhé.
 
@@ -55,31 +55,29 @@ Khi xây được Tử cấm thành lập tức inbox Fanpage để được ch�
 
 ➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
 
-🎁Sự kiện " Nhất Đại Phú Gia " (chỉ áp dụng Đại Hán 2 ) 
+🎁Sự kiện " Nhất Đại Phú Gia " (chỉ áp dụng Đại Hán 3 ) 
 
 ⏰Thời gian: 11/01 đến 24h ngày 15/01/2020
 
-💎 Top 1: Trùng Lâu Triệu/Quy + Băng Phách Thần Châm + 1 áo Thời trang hoặc Kỵ có thuộc tính (30 ngày) + pét 6k tư chất + Danh Hiệu
+💎 Top 1: Trùng Lâu Triệu/Quy + Băng Phách Thần Châm + 1 áo Thời trang hoặc Kỵ có thuộc tính (30 ngày) + pét 6k tư chất
 
-💎 Top 2: Băng Phách Thần Châm + 1 áo Thời trang hoặc Kỵ có thuộc tính ( 30 ngày ) + pet 4k tư chất + Danh Hiệu
+💎 Top 2: Băng Phách Thần Châm + 1 áo Thời trang hoặc Kỵ có thuộc tính ( 30 ngày ) + pet 4k tư chất
 
-💎 Top 3: Băng phách Thần châm + 1 áo Thuộc tính hoặc Kỵ có thuộc tính (30 ngày ) + Danh Hiệu
+💎 Top 3: Băng phách Thần châm + 1 áo Thuộc tính hoặc Kỵ có thuộc tính (7 ngày )
 
 ➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
 
-🎁Sự kiện " Tài Phú Mừng Xuân " (Áp dụng cả 2 server) 
+🎁Sự kiện " Tài Phú Kỷ niệm Sinh nhật 1 tuổi Đại Hán " (Áp dụng cả 2 server) 
 
-⏰Thời gian: 02/01 đến 24h ngày 15/01/2020
+⏰Thời gian: 18/02 đến 24h ngày 02/03/2020
 
-💎 TOP 1 : Trùng Lâu Giới hoặc Ngọc + Danh Hiệu 
+💎 TOP 1 : Trùng Lâu Giáp + 2k Chân nguyên + Danh Hiệu 
 
-💎 TOP 2 : Trùng Lâu Quy hoặc Triệu + Danh Hiệu 
+💎 TOP 2 : Thời trang hoặc Kỵ thuộc tính vĩnh viễn + 2k Chân nguyên + Danh Hiệu 
 
-💎 TOP 3 : Thời trang hoặc Kỵ thuộc tính 60 ngày + Danh Hiệu 
+💎 TOP 3 : Thời trang hoặc Kỵ thuộc tính 60 ngày + 1k Chân nguyên + Danh Hiệu 
 
-💎 TOP 4-10 : Thời trang hoặc Kỵ thuộc tính 30 ngày.
-
-📌 Lưu ý : TOP 1-2-3 thuộc server 2 chỉ được chọn 1 trong 2 giải thưởng (Trùng lâu)
+📌 Lưu ý : Server Đại hán 3 đua cùng lúc 2 sự kiện Tài phú.
 
 ➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
 
