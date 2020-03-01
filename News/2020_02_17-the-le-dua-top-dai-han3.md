@@ -41,7 +41,7 @@ Khi xây được Tử cấm thành lập tức inbox Fanpage để được ch�
 
 🎁 EVENT SĂN BẮT HÁI LƯỢM
 
-📌 Bất cứ ai up thành công 1 trong 3 nghề sau đây lên cấp 10:
+📌 Bất cứ ai up thành công 1 trong 3 nghề sau đây lên cấp 10 đầu tiên của server 3:
 
 💎 Hái Dược
 
