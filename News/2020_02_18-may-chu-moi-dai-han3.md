@@ -107,7 +107,7 @@ TOP 4-10 : Thời trang hoặc Kỵ thuộc tính 7 ngày.
 ➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
 
 🎁Sự kiện " Tài Phú Mừng Sinh Nhật 1 tuổi Đại Hán " (Áp dụng cả 2 server)
-⏰Thời gian: 19/02 đến 24h ngày 02/03/2020
+⏰Thời gian: 19/02 đến 17h ngày 02/03/2020
 
 TOP 1 : Trùng Lâu Giáp + 2k Chân nguyên + Danh Hiệu
 TOP 2 : Kỵ hoặc Áo thời trang thuộc tính (vĩnh viễn) + 2k Chân Nguyên + Danh Hiệu
