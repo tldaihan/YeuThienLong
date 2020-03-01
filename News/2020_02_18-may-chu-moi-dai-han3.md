@@ -33,6 +33,7 @@ Thiên Long Đại Hán là phiên bản miễn phí dành riêng cho cộng đ�
 Giới Thiệu Server Đại Hán 3:
 
 ☑️Hướng đi gần giống với server Đại Hán 1 (bảng drop sẽ update liên tục)
+
 xem chi tiết tại: http://thienlong-daihan.com/tinhnang/toan-tap
 
 ☑️ Server sẽ bảo trì mỗi ngày vào 17h45 tối mỗi lần 5 phút.
@@ -66,6 +67,7 @@ Ngoài ra vẫn sẽ có 1 số trường hợp cần bảo trì đột xuất v
 ➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
 
 🎁Sự Kiện Giftcode mừng ngày OPEN Đại Hán 3:
+
 🍀Bước 1: Like Fanpage, Like bài viết, Tag tên ít nhất 5 người bạn mời cùng chơi và chia sẻ bài viết này dưới chế độ công khai
 
 🍀Bước 2 : Tham gia Group
@@ -91,9 +93,11 @@ Ngoài ra vẫn sẽ có 1 số trường hợp cần bảo trì đột xuất v
 ⏰Thời gian: 19/02 đến 02/03/2020
 
 🍀Khuyến mãi 20% bạc đối với thẻ cào và 50% đối với Nạp qua ATM, Momo. ZaloPay.
+
 ➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
 
 🎁Sự kiện " Nhất Đại Phú Gia " (chỉ áp dụng Đại Hán 3 )
+
 ⏰Thời gian: 29/02 đến 24h ngày 02/03/2020
 
 Top 1: Trùng Lâu Triệu/Quy + Băng Phách Thần Châm + 1 áo Thời trang có thuộc tính (30 ngày) + pét 6k tư chất
@@ -107,17 +111,20 @@ TOP 4-10 : Thời trang hoặc Kỵ thuộc tính 7 ngày.
 ➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
 
 🎁Sự kiện " Tài Phú Mừng Sinh Nhật 1 tuổi Đại Hán " (Áp dụng cả 2 server)
+
 ⏰Thời gian: 19/02 đến 17h ngày 02/03/2020
 
 TOP 1 : Trùng Lâu Giáp + 2k Chân nguyên + Danh Hiệu
-TOP 2 : Kỵ hoặc Áo thời trang thuộc tính (vĩnh viễn) + 2k Chân Nguyên + Danh Hiệu
-TOP 3 : Kỵ hoặc Áo thời trang thuộc tính (60 ngày) + 1k Chân Nguyên + Danh Hiệu
 
+TOP 2 : Kỵ hoặc Áo thời trang thuộc tính (vĩnh viễn) + 2k Chân Nguyên + Danh Hiệu
+
+TOP 3 : Kỵ hoặc Áo thời trang thuộc tính (60 ngày) + 1k Chân Nguyên + Danh Hiệu
 
 📌 Lưu ý : Server 3 sẽ đua được đồng thời cả 2 sự kiện tài phú.
 ➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
 
 🎁Xây Tử Cấm Thành:
+
 📌📌Đối tượng tham gia: Tất cả các bang hội của (TLBB Đại Hán 3) bắt đầu từ lúc khai mở đến khi có 2 bang xây được Tử Cấm Thành.
 
 🛠🛠Hình thức tham gia: Bang hội xây được Tử cấm thành nhanh nhất, thứ hai sẽ nhận được quà vô cùng giá trị.
