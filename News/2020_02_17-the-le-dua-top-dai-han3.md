@@ -69,7 +69,7 @@ Khi xây được Tử cấm thành lập tức inbox Fanpage để được ch�
 
 🎁Sự kiện " Tài Phú Kỷ niệm Sinh nhật 1 tuổi Đại Hán " (Áp dụng cả 2 server) 
 
-⏰Thời gian: 18/02 đến 24h ngày 02/03/2020
+⏰Thời gian: 18/02 đến 17h ngày 02/03/2020
 
 💎 TOP 1 : Trùng Lâu Giáp + 2k Chân nguyên + Danh Hiệu 
 
