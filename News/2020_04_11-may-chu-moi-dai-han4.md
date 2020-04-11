@@ -1,22 +1,20 @@
-title:MÁY CHỦ MỚI ĐẠI HÁN 3 
+title:MÁY CHỦ MỚI ĐẠI HÁN 4 
 image:https://i.imgur.com/tOxmjg1.png
-date:18.02.2020
+date:11.04.2020
 
 Kính chào quý bằng hữu!
 
-Thiên Long Đại Hán là phiên bản miễn phí dành riêng cho cộng đồng đam mê Thiên Long Bát Bộ đội ngũ BQT đều là những game thủ chân chính từ thời FPT phát triển. Sẽ chính thức ra mắt server Đại Hán 3 với những event cực chất.
-
- ⏰Test: 13h00p ngày 22/02/2020
+Thiên Long Đại Hán là phiên bản miễn phí dành riêng cho cộng đồng đam mê Thiên Long Bát Bộ đội ngũ BQT đều là những game thủ chân chính từ thời FPT phát triển. Sẽ chính thức ra mắt server Đại Hán 4 với những event cực chất.
  
- ⏰Open: 13h00p ngày 29/02/2020
+ ⏰Open: 19h00p ngày 17/04/2020
 
 🔰Trang chủ: http://thienlong-daihan.com
 
 🔰Đăng Ký: http://id.thienlong-daihan.com/register
 
-🔰Fangpage: https://www.facebook.com/thienlongdaihan
+🔰Fangpage: https://www.facebook.com/tlbbdaihan
 
-🔰Groups: https://www.facebook.com/groups/405235456707396
+🔰Groups: https://www.facebook.com/groups/thienlongdaihan/
 
 🔰Tải Game: http://thienlong-daihan.com/Download
 
@@ -24,13 +22,13 @@ Thiên Long Đại Hán là phiên bản miễn phí dành riêng cho cộng đ�
 
 📣📣Thông tin Server:
 
-➖ Tỉ lệ Exp: x10 sau đua top x15
+➖ Tỉ lệ Exp: x10 sau đua top x20
 
 ➖ Tỉ lệ drop: x5
 
 ➖ Thể Loại: Cày cuốc 😅😅
 
-Giới Thiệu Server Đại Hán 3:
+Giới Thiệu Server Đại Hán 4:
 
 ☑️Hướng đi gần giống với server Đại Hán 1 (bảng drop sẽ update liên tục)
 
@@ -40,9 +38,9 @@ xem chi tiết tại: http://thienlong-daihan.com/tinhnang/toan-tap
 
 Ngoài ra vẫn sẽ có 1 số trường hợp cần bảo trì đột xuất và sẽ có thông báo trước ít nhất 1 tiếng
 
-☑️ Ngọc 5 sẽ được mở bán với giá 30000 ĐT ngay sau khi có top level 99
+☑️ Ngọc 5 sẽ được mở bán với giá 10000 ĐT sau khi Open 1 ngày 
 
-☑️ Chạy Thương nhân lấy vàng + điểm tặng (chỉ cần chăm chỉ, không cần nạp tiền)
+☑️ Chạy Thương nhân lấy vàng (cày điểm Cống Hiến nâng cấp Lệnh Bài Bá Vương Lệnh)
 
 ☑️Giới hạn chỉ mở tối đa 3 nhân vật / máy (chống Clone). Giới hạn này áp dụng luôn đối với toàn bộ máy chủ Đại Hán.
 
@@ -58,7 +56,7 @@ Ngoài ra vẫn sẽ có 1 số trường hợp cần bảo trì đột xuất v
 
 🎁Hỗ Trợ Tân Thủ :
 
-☑️Level 10 nhận free bộ tân thủ full ngọc cấp 3.
+☑️Nhận free bộ tân thủ full ngọc cấp 3.
 
 ☑️Thần khí 42 - 92
 
@@ -66,7 +64,7 @@ Ngoài ra vẫn sẽ có 1 số trường hợp cần bảo trì đột xuất v
 
 ➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
 
-🎁Sự Kiện Giftcode mừng ngày OPEN Đại Hán 3:
+🎁Sự Kiện Giftcode mừng ngày OPEN Đại Hán 4:
 
 🍀Bước 1: Like Fanpage, Like bài viết, Tag tên ít nhất 5 người bạn mời cùng chơi và chia sẻ bài viết này dưới chế độ công khai
 
@@ -76,56 +74,43 @@ Ngoài ra vẫn sẽ có 1 số trường hợp cần bảo trì đột xuất v
 
 ➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
 
-🎁Đua Top level 99 nhận quà khủng:
+🎁Đua Top level 119 nhận quà khủng:
 
-☑️Top 1: 2 thể 6 + 2k vàng + 300k ĐT + Ám khí Băng Phách Thần Châm + Kỵ thuộc tính (60 ngày)
+☑️Top 1: Trùng Lâu Quy (cố định) + 300k ĐT + Ám khí BPTC + Kỵ thuộc tính (60 ngày)
 
-☑️Top 2: 1 Thể 6 + 1k vàng + 200k ĐT + Kỵ thuộc tính (30 ngày)
+☑️Top 2: 4 Thể Lực 6 (cố định) + 200k ĐT + Kỵ thuộc tính (30 ngày)
 
-☑️Top 3: 3 Thể 5 + 1k vàng + 100k ĐT
+☑️Top 3: 4 Thể Lực 5 (cố định) + 100k ĐT
 
 ☑️Top 4 - Top 10: 50k ĐT
 
 ➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
 
-🎁Khuyến mãi Nạp Bạc chào mừng Server Đại Hán S3:
+🎁Khuyến mãi Nạp Bạc chào mừng Server Đại Hán S4:
 
-⏰Thời gian: 19/02 đến 02/03/2020
+⏰Thời gian: 17/04 đến 20/04/2020
 
 🍀Khuyến mãi 20% bạc đối với thẻ cào và 50% đối với Nạp qua ATM, Momo. ZaloPay.
 
 ➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
 
-🎁Sự kiện " Nhất Đại Phú Gia " (chỉ áp dụng Đại Hán 3 )
+🎁Sự kiện " Nhất Đại Phú Gia " (chỉ áp dụng Đại Hán 4 )
 
-⏰Thời gian: 29/02 đến 24h ngày 02/03/2020
+⏰Thời gian: 17/04 đến 24h ngày 20/04/2020
 
-Top 1: Trùng Lâu Triệu/Quy + Băng Phách Thần Châm + 1 áo Thời trang có thuộc tính (30 ngày) + pét 6k tư chất
+Top 1: Trùng Lâu Triệu/Quy + Băng Phách Thần Châm + 1 áo Thời trang có thuộc tính (60 ngày) + pét 6k tư chất
 
 Top 2: Băng Phách Thần Châm + 1 áo Thời trang có thuộc tính ( 30 ngày ) + pet 4k tư chất
 
 Top 3: Băng phách Thần châm + 1 áo Thuộc tính (30 ngày )
 
-TOP 4-10 : Thời trang hoặc Kỵ thuộc tính 7 ngày.
+TOP 4-10 : Thời trang hoặc Kỵ thuộc tính 30 ngày.
 
-➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
-
-🎁Sự kiện " Tài Phú Mừng Sinh Nhật 1 tuổi Đại Hán " (Áp dụng cả 2 server)
-
-⏰Thời gian: 19/02 đến 17h ngày 02/03/2020
-
-TOP 1 : Trùng Lâu Giáp + 2k Chân nguyên + Danh Hiệu
-
-TOP 2 : Kỵ hoặc Áo thời trang thuộc tính (vĩnh viễn) + 2k Chân Nguyên + Danh Hiệu
-
-TOP 3 : Kỵ hoặc Áo thời trang thuộc tính (60 ngày) + 1k Chân Nguyên + Danh Hiệu
-
-📌 Lưu ý : Server 3 sẽ đua được đồng thời cả 2 sự kiện tài phú.
 ➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
 
 🎁Xây Tử Cấm Thành:
 
-📌📌Đối tượng tham gia: Tất cả các bang hội của (TLBB Đại Hán 3) bắt đầu từ lúc khai mở đến khi có 2 bang xây được Tử Cấm Thành.
+📌📌Đối tượng tham gia: Tất cả các bang hội của (TLBB Đại Hán 4) bắt đầu từ lúc khai mở đến khi có 2 bang xây được Tử Cấm Thành.
 
 🛠🛠Hình thức tham gia: Bang hội xây được Tử cấm thành nhanh nhất, thứ hai sẽ nhận được quà vô cùng giá trị.
 
