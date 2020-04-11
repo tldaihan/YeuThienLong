@@ -1,5 +1,5 @@
 title:MÁY CHỦ MỚI ĐẠI HÁN 4 
-image:https://i.imgur.com/XakE4zK.jpg
+image:https://i.imgur.com/eTMxYGV.png
 date:11.04.2020
 
 Kính chào quý bằng hữu!
