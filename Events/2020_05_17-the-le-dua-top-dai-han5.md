@@ -21,7 +21,7 @@ Gợi ý nhỏ: để đảm bảo được quyền lợi của chính mình th�
 💎Top 4 -> Top 10 mỗi bạn được 50k ĐT
 ➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
 
-🎁Xây Tử Cấm Thành: 📌Đối tượng tham gia: Tất cả các bang hội của server Đại Hán 2 bắt đầu từ lúc khai mở đến khi có 2 bang xây được Tử Cấm Thành.
+🎁Xây Tử Cấm Thành: 📌Đối tượng tham gia: Tất cả các bang hội của server Đại Hán 5 bắt đầu từ lúc khai mở đến khi có 2 bang xây được Tử Cấm Thành (thời hạn 1 tháng kể từ khi Open )
 
 🛠🛠Hình thức tham gia: Bang hội xây được Tử cấm thành nhanh nhất, thứ hai sẽ nhận được quà vô cùng giá trị.
 
