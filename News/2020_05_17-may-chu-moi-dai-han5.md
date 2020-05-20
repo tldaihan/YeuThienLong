@@ -110,7 +110,7 @@ TOP 4-10 : Thời trang thuộc tính (30 ngày)
 
 🎁Xây Tử Cấm Thành:
 
-📌📌Đối tượng tham gia: Tất cả các bang hội của (TLBB Đại Hán 5) bắt đầu từ lúc khai mở đến khi có 2 bang xây được Tử Cấm Thành.
+📌📌Đối tượng tham gia: Tất cả các bang hội của (TLBB Đại Hán 5) bắt đầu từ lúc khai mở đến khi có 2 bang xây được Tử Cấm Thành ( Thời hạn 1 tháng kể từ khi Open )
 
 🛠🛠Hình thức tham gia: Bang hội xây được Tử cấm thành nhanh nhất, thứ hai sẽ nhận được quà vô cùng giá trị.
 
