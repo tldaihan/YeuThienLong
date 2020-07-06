@@ -1,5 +1,5 @@
 title:MÁY CHỦ MỚI NHẤT DƯƠNG CHỈ 
-image:https://imgur.com/gallery/613wf2o
+image:https://i.imgur.com/YzEOA8N.png
 date:27.06.2020
 
 Kính chào quý bằng hữu!
