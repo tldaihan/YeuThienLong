@@ -12,11 +12,11 @@ date  :24.07.2020
 
 🔰 Phần thưởng : 
 
-🏁 TOP 1️⃣ : Trùng Lâu Triệu + 3000 KNB
+🏁 TOP 1 : Trùng Lâu Triệu + 3000 KNB
 
-🏁 TOP 2️⃣ : 4 Thể Lực 6 (cố định) + 2000 KNB
+🏁 TOP 2 : 4 Thể Lực 6 (cố định) + 2000 KNB
 
-🏁 TOP 3️⃣ : 2 Thể Lực 6 (cố định) + 1000 KNB
+🏁 TOP 3 : 2 Thể Lực 6 (cố định) + 1000 KNB
 
 🏁 TOP 4 đến Top 10 : 2 Thể Lực 5 (cố định) + 500 KNB
 
