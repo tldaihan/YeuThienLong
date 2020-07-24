@@ -1,6 +1,6 @@
-title:🔔THỂ LỆ ĐUA TOP NHẤT DƯƠNG CHỈ 🔔
+title:🔔THỂ LỆ ĐUA TOP BÀN LONG KÍCH 🔔
 image:https://tinhkiem.net/wp-content/uploads/2019/02/dua-top.jpg
-date:27.06.2020
+date:24.07.2020
 
 Kính chào quý bằng hữu!
 
