@@ -18,7 +18,7 @@ Giải pháp hiệu quả cho những ai gặp khó khăn về tài chính mà k
 
 - Tiêu diệt tên ác nhân và nhận được BTĐ. Quay về trả nhiệm vụ và nhận lại nhiệm vụ mới.
 
-!(https://imgur.com/rDEmMci)
+!(https://imagizer.imageshack.com/img923/4879/SuHeN9.png)
 
 ## Kinh nghiệm:
 
@@ -46,7 +46,7 @@ Cũng tương tự như Trừng ác lệnh, trên BTĐ có ghi tọa độ, bạ
 
 -  Dịch chuyển đến Huyệt mộ.
 
-!(https://imgur.com/uHpTEFu)
+!(https://imagizer.imageshack.com/img924/6752/1GacnN.jpg)
 
 ## Kinh nghiệm:
 
