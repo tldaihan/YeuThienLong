@@ -8,7 +8,7 @@ Giải pháp hiệu quả cho những ai gặp khó khăn về tài chính mà k
 
 ## I. Giai đoạn săn Bảo tàng đồ (BTĐ):
 
-- Khi đạt đến cấp 30 là bạn có thể đến gặp Ngô Giới ở Tô Châu (chữ BỘ) nhận nhiệm vụ Trừng ác.
+- Khi đạt đến cấp 30 là bạn có thể đến gặp Ngô Giới ở Tô Châu 224,225 (chữ BỘ) nhận nhiệm vụ Trừng ác.
 
 ![Trừng Ác](https://i.imgur.com/9k7GWRG.png)
 
