@@ -20,7 +20,7 @@ Các bằng hữu tham gia các phụ bản trong game: Trân Long Kỳ Cuộc, 
 
 - Bột nếp, đậu xanh, mứt sen, hạt dưa : sử dụng để chế tạo bánh dẻo
 
-!(https://imgur.com/a/IXgz18s)
+![](https://imgur.com/a/IXgz18s)
 
 Sau khi thu thập đủ số lượng nguyên liệu cần thiết, các bằng hữu đến Lôi Đài Lạc Dương gặp NPC Chị Hằng để nhờ chị ấy giúp bằng hữu làm bánh. Với tay nghề làm bánh điêu luyện của chị ấy, sau khi bánh làm xong, không những thưởng thức rất ngon mà còn nhận được nhiều điều kỳ lạ khác ! 
 
