@@ -54,6 +54,8 @@ Sau khi sử dụng bánh dẻo, bánh nướng có xác suất nhận được:
 
 Chỉ cần mang đến toạ độ [230,91] Đại Lý xung quanh lò nướng bánh, các bằng hữu có thể tự tay mình nướng bánh.
 
+![](https://imgur.com/a/A8yp6wr)
+
 ➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
 
 Điểm Hoạt Động Trung Thu có thể dùng để đổi lấy các vật phẩm như : 
