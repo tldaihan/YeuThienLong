@@ -20,7 +20,7 @@ Các bằng hữu tham gia các phụ bản trong game: Trân Long Kỳ Cuộc, 
 
 - Bột nếp, đậu xanh, mứt sen, hạt dưa : sử dụng để chế tạo bánh dẻo
 
-![](https://imgur.com/a/IXgz18s)
+![](https://i.imgur.com/S29OIlG.jpg)
 
 Sau khi thu thập đủ số lượng nguyên liệu cần thiết, các bằng hữu đến Lôi Đài Lạc Dương gặp NPC Chị Hằng để nhờ chị ấy giúp bằng hữu làm bánh. Với tay nghề làm bánh điêu luyện của chị ấy, sau khi bánh làm xong, không những thưởng thức rất ngon mà còn nhận được nhiều điều kỳ lạ khác ! 
 
@@ -54,7 +54,7 @@ Sau khi sử dụng bánh dẻo, bánh nướng có xác suất nhận được:
 
 Chỉ cần mang đến toạ độ [230,91] Đại Lý xung quanh lò nướng bánh, các bằng hữu có thể tự tay mình nướng bánh.
 
-![](https://imgur.com/a/A8yp6wr)
+![](https://i.imgur.com/rqYOz1I.jpg)
 
 ➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
 
