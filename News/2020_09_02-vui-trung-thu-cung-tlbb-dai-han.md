@@ -50,6 +50,8 @@ Sau khi sử dụng bánh dẻo, bánh nướng có xác suất nhận được:
 
 Đồng thời đạt 2 điểm hoạt động Trung Thu.
 
+![](https://i.imgur.com/hW49BKO.jpg)
+
 Đối với bánh nướng, sau khi làm xong, các bằng hữu chưa thể sử dụng ngay mà phải nướng bánh mới sử dụng được.
 
 Chỉ cần mang đến toạ độ [230,91] Đại Lý xung quanh lò nướng bánh, các bằng hữu có thể tự tay mình nướng bánh.
