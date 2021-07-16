@@ -30,7 +30,7 @@ BQT TLBB BÀN LONG KÍCH
 
 ### ☑Đăng Ký: id.banlongkich.com/register/
 
-### ☑Fangpage: https://www.facebook.com/tlbbbanlongkich
+### ☑Fanpage: https://www.facebook.com/tlbbbanlongkich
 
 ### ☑Groups: https://www.facebook.com/groups/banlongkich
 
