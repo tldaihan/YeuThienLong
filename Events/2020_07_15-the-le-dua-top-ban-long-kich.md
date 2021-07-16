@@ -1,4 +1,4 @@
-title:🔔THỂ LỆ ĐUA TOP TLBB BÀN LONG KÍCH 🔔
+title:THỂ LỆ ĐUA TOP TLBB BÀN LONG KÍCH
 image:https://i.imgur.com/EbXqVk2.png
 date:15.07.2021
 
