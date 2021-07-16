@@ -1,6 +1,6 @@
 title:🔔THỂ LỆ ĐUA TOP TLBB BÀN LONG KÍCH 🔔
-image:https://tinhkiem.net/wp-content/uploads/2019/02/dua-top.jpg
-date:16.07.2021
+image:https://i.imgur.com/EbXqVk2.png
+date:15.07.2021
 
 Kính chào quý bằng hữu!
 
