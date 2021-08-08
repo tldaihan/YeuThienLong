@@ -1,6 +1,6 @@
 title :Nhiệm Vụ Trừng Ác
 image : https://i.imgur.com/9k7GWRG.png
-date  :29.08.2020
+date  :01.08.2021
 
 Trong thế giới Thiên Long Bát Bộ không phải ai cũng có đủ năng lực để nuôi sống mình, chỉ việc kiếm tiền nâng tâm pháp cho mình đã rất khó. Không thể trông chờ vào đồng thù lao ít ỏi khi làm nhiệm vụ. Để bổ sung tài chính cho nhân vật của mình nhiều người đã chọn cách nạp thêm KNB để mua vàng (việc này không phải ai cũng làm được), còn không thì đi Tào Vận hay Thương Nhân để kiếm tiền, nhưng khuyết điểm của Tào Vận và Thương Nhân chính là nó tốn khá nhiều thời gian, nguy hiểm và kiếm được một chân Thương Nhân trong một Bang hội lớn cũng không phải dễ và những việc này chỉ phát huy hiệu quả vào ngày Tào Vận hay Thương Nhân.
  
@@ -68,8 +68,8 @@ Cũng tương tự như Trừng ác lệnh, trên BTĐ có ghi tọa độ, bạ
 
 ### ☑Đăng Ký: id.banlongkich.com/register/
 
-### ☑Fangpage: fb.com/tlbbdaihan/
+### ☑Fangpage: fb.com/tlbbbanlongkich/
 
-### ☑Groups: fb.com/groups/thienlongdaihan/
+### ☑Groups: fb.com/groups/banlongkich/
 
 ### ☑Tải Game: banlongkich.com/Download/
