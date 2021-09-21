@@ -2,7 +2,7 @@ title :Huyền Thoại TLBB - Sự Kiện Đua Top Nghề
 image : https://i.imgur.com/LzGZ4Qi.png
 date  :21.09.2021
 
-!(https://i.imgur.com/LzGZ4Qi.png)
+!(https://imagizer.imageshack.com/img922/472/h0fRjd.png)
 
 # Hãy cùng Bổn Môn điểm qua thể lệ để sẵn sàng tham gia sự kiện ở phiên bản Truyền Thuyết Ảnh Tử 2009 này nhé.
 
