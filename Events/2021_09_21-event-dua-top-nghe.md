@@ -20,7 +20,7 @@ Hãy cùng Bổn Môn điểm qua thể lệ để sẵn sàng tham gia sự ki�
 
 ❣️ Danh Hiệu : Bách Nghệ Tinh Thông
 
-❣️ Vàng không khóa : 2000
+❣️ Vàng không khóa : 1000
 
 ❣️ Phiếu Bảo Thạch cấp 4 : x5 (cố định)
 
