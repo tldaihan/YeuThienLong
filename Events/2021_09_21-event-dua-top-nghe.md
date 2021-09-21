@@ -1,4 +1,4 @@
-title :Huyền Thoại TLBB - Sự Kiện Đua Top Nghề
+title :Sự Kiện Đua Top Nghề
 image : https://i.imgur.com/LzGZ4Qi.png
 date  :21.09.2021
 
