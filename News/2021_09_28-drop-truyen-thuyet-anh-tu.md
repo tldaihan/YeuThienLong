@@ -93,6 +93,14 @@ date  :28.09.2021
 ## Diệt Phỉ Kính Hồ:
 
 🎁 Sơ cấp HTP, Ngọc 3 (cố định), Thô chế Vải Bông, Bí Ngân, Tinh Thiết, Tân Mãng Thần Phù 1-6. 
+
+## Mã Tặc:
+
+🎁 Bí kíp Pet Sơ cấp, cao cấp. 
+
+## Hộ Đảo Thần Thú:
+
+🎁 Bí kíp Pet Sơ cấp, cao cấp. 
  
 
 - 
