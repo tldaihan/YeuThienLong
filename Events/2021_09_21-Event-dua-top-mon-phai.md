@@ -8,15 +8,15 @@ Sự kiện Đua Top Cấp Độ Môn Phái sẽ là nơi đao quang ảnh kiế
 
 ## ⏰ Thời Gian:
 
-👉 Từ 01/10 cho đến khi có đủ 9 nhân vật thuộc 9 môn phái thỏa mãn điều kiện nhận giải
+👉 Từ 10/10 cho đến khi có đủ 9 nhân vật thuộc 9 môn phái thỏa mãn điều kiện nhận giải
 
 ## 🍀 Thể lệ:
 
-👉 9 Nhân Vật đầu tiên của 9 Môn Phái đạt cấp 79 nhanh chóng mở giao diện nhân vật chụp ảnh toàn màn hình (thể hiện đầy đủ thông tin nhân vật và cấp độ) sau đó đăng ảnh lên Group Huyền Thoại TLBB (https://www.facebook.com/groups/httlbb) để nhận thưởng.
+👉 9 Nhân Vật đầu tiên của 9 Môn Phái đạt cấp 89 nhanh chóng mở giao diện nhân vật chụp ảnh toàn màn hình (thể hiện đầy đủ thông tin nhân vật và cấp độ) sau đó đăng ảnh lên Group Huyền Thoại TLBB (https://www.facebook.com/groups/httlbb) để nhận thưởng.
 
 ## 🎁 Phần thưởng :
 
-🔸 Bộ Full Môn Phái 7x
+🔸 Bộ Full Môn Phái 8x
 
 🔸 Tàn Khuyết Thần Tiết Cấp 4 x1
 
