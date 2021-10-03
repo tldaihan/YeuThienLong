@@ -12,7 +12,7 @@ Sự kiện Đua Top Cấp Độ Môn Phái sẽ là nơi đao quang ảnh kiế
 
 ## 🍀 Thể lệ:
 
-👉 9 Nhân Vật đầu tiên của 9 Môn Phái đạt cấp 79 nhanh chóng mở giao diện nhân vật chụp ảnh toàn màn hình (thể hiện đầy đủ thông tin nhân vật và cấp độ) sau đó đăng ảnh lên Group Huyền Thoại TLBB (https://www.facebook.com/groups/httlbb) để nhận thưởng.
+👉 9 Nhân Vật đầu tiên của 9 Môn Phái đạt cấp 89 nhanh chóng mở giao diện nhân vật chụp ảnh toàn màn hình (thể hiện đầy đủ thông tin nhân vật và cấp độ) sau đó đăng ảnh lên Group Huyền Thoại TLBB (https://www.facebook.com/groups/httlbb) để nhận thưởng.
 
 ## 🎁 Phần thưởng :
 
