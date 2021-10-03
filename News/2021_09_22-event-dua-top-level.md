@@ -8,7 +8,7 @@ date  :22.09.2021
 
 ## ⏰ Thời Gian: 
 
-🔸 Từ 01/10 đến 17:59:59 ngày 03/10/2021. 
+🔸 Từ 10/10 đến 17:59:59 ngày 13/10/2021. 
 
 ## 🔰 Thể lệ:
 
@@ -28,7 +28,7 @@ Ngay khi kết thúc thời gian sự kiện, GM sẽ kiểm tra dữ liệu và
 
 - Điểm Tặng: 500.000
 
-- Bộ Full Môn Phái 6x (theo môn phái nhân vật đạt giải) 
+- Bộ Full Môn Phái 8x (theo môn phái nhân vật đạt giải) 
 
 🥇 Top 2: dành cho 1 nhân vật có thứ hạng xếp kế tiếp
 
