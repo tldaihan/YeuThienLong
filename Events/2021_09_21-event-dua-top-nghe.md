@@ -6,7 +6,7 @@ date  :21.09.2021
 
 Hãy cùng Bổn Môn điểm qua thể lệ để sẵn sàng tham gia sự kiện ở phiên bản Truyền Thuyết Ảnh Tử 2009 này nhé.
 
-## ⏰ Thời Gian : Từ 01/10 cho đến khi có đủ 3 nhân vật thỏa mãn điều kiện.
+## ⏰ Thời Gian : Từ 10/10 cho đến khi có đủ 3 nhân vật thỏa mãn điều kiện.
 
 ## 🌾 Thể lệ:
 
