@@ -8,7 +8,7 @@ Sự kiện Đua Top Cấp Độ Môn Phái sẽ là nơi đao quang ảnh kiế
 
 ## ⏰ Thời Gian:
 
-👉 Từ 01/10 cho đến khi có đủ 9 nhân vật thuộc 9 môn phái thỏa mãn điều kiện nhận giải
+👉 Từ 10/10 cho đến khi có đủ 9 nhân vật thuộc 9 môn phái thỏa mãn điều kiện nhận giải
 
 ## 🍀 Thể lệ:
 
