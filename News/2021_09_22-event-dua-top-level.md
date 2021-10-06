@@ -57,8 +57,12 @@ Chúc các bằng hữu thành công !
 --------✭✭✭✭✭---------
 
 ## ⚡️ Huyền Thoại TLBB - Nơi ký ức bắt đầu
+
 Đăng Ký: http://id.huyenthoaitlbb.com/register
+
 Fanpage: https://www.facebook.com/httlbb
+
 Groups: https://www.facebook.com/groups/httlbb
+
 Tải Game: http://www.huyenthoaitlbb.com/Download
  
