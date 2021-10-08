@@ -18,9 +18,9 @@ Sự kiện Đua Top Cấp Độ Môn Phái sẽ là nơi đao quang ảnh kiế
 
 🔸 Bộ Full Môn Phái 7x
 
-🔸 Tàn Khuyết Thần Tiết Cấp 4 x1
+🔸 Tàn Khuyết Thần Tiết Cấp 5 x1
 
-🔸 Tân Mãng Thần Phù cấp 4 x20
+🔸 Tân Mãng Thần Phù cấp 5 x20
 
 🔸 Thời Trang Cao Cấp Môn Phái x1
 
