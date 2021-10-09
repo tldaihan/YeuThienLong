@@ -6,7 +6,7 @@ date  :28.09.2021
 
 ## Boss Kính Hồ: 
 
-🎁 Ngọc 2, Ngọc 3(cố định), Sơ cấp HTP. 
+🎁 Ngọc 2, Ngọc 3(cố định), Sơ cấp HTP, Bảo Thạch Điêu Trác Phù 2,3. 
 
 ## Boss Kính Hồ (xanh): 
 
